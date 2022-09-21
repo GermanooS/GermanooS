@@ -9,7 +9,7 @@
 
 - 💬 Me perguntar sobre **Power Bi, Exel, Machine Learn e Python**
 
-- 📫 Você me acha **germano19santana@hotmail.com ou [https://www.linkedin.com/in/germano-santana-22a738187/](https://www.linkedin.com/in/germano-santana-22a738187/ )
+- 📫 Você me acha germano19santana@hotmail.com ou [https://www.linkedin.com/in/germano-santana-22a738187/](https://www.linkedin.com/in/germano-santana-22a738187/ )
 
 ## Oi eu sou o Germano Santana!
 <div align="center">
